@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @kbav26
+- 👀 I’m interested in aviation and photo/graphics editing
+- 🌱 I’m currently learning photography and videography
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me Instagram! You can find me on ifs.jets!
+- Blue skies and tailwinds!
