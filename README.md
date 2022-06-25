@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @kbav26
+- 👋 Hi, I’m @KbAv!
 - 👀 I’m interested in aviation and photo/graphics editing
 - 🌱 I’m currently learning photography and videography
 - 💞️ I’m looking to collaborate on ...
